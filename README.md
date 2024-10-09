@@ -2,7 +2,7 @@
 - 👀 I’m interested in Creating, Football, Video editing, Gaming and Coding
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on a lot of things honestly.
-- 📫 How to reach me on github
+- 📫 How to reach me: Email: ahmedbg12456@gmail.com 
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: when you think about nothing your head still thinks of everything.
 
